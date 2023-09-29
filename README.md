@@ -1,0 +1,2 @@
+# types_of_computer
+ABOUT TYPES OF COMPUTER FOR BEGINNERS
